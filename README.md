@@ -1,1 +1,1 @@
-# Autonomous-Systems-Team19
+# Autonomous Systems — Team 19 | GUC Spring 2026
